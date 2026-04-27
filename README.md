@@ -1,1 +1,0 @@
-# oopi_masalalarr77
